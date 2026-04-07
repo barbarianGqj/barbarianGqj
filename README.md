@@ -4,6 +4,6 @@
 - 🌱 I’m currently learning computer science 😫
 - 🤔 I’m looking for help with computer vision 🤔
 - 💬 Ask me about anything 🤓
-- 📫 How to reach me: Leave it to serendipity 😊
+- 📫 How to reach me: Leave it to serendipity(google translates this) 😊
 - 😄 Pronouns: he/him 💪
 
